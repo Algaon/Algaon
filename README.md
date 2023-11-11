@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Algaon ... Algo was taken :( 
+- 👀 I’m interested in ... cool looking fish
+- 🌱 I’m currently learning ... lots
+- 💞️ I’m looking to collaborate on ... pictures of cool looking fish
+- 📫 How to reach me ... pls dont im scared :(
